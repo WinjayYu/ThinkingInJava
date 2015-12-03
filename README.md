@@ -1,1 +1,1 @@
-¥ø Ù¡∑ ÷
+exercises some code
